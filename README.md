@@ -1,1 +1,1 @@
-# promland.com.ua
+# https://www.promland.com.ua
